@@ -1,0 +1,4 @@
+Cinquentão, casado. Ele e sua mulher trabalham como zeladores na habitação onde moram. Mora no primeiro andar de um prédio na área suburbana. Sonha em ir para o campo nas férias e fins de semana, ou para qualquer local que relembre as suas raízes rurais. Parou de estudar aos 13 anos. Tem uma irmã que ficou na região.
+Ele veio de uma pequena cidade perto de Dijon. Sua mulher veio de uma cidade da mesma região que ele. Sua mãe era enfermeira e seu pai era contramestre de serraria.
+Teve de procurar um trabalho mais leve após cair de um andaime e ficar "50% deficiente". Recebe 10.000 francos por mês da HLM.
+Zelador há 7 anos
